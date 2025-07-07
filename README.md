@@ -1,4 +1,4 @@
-![haiii](https://tenor.com/view/persona-4-yosuke-hanamura-camp-yosuke-gif-735537977871912498)
+![haiii](https://media.tenor.com/yIinc8HW53kAAAAM/yosuke-yosuke-hanamura.gif)
 <!--
 **personayaoi/personayaoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
