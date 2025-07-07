@@ -1,4 +1,4 @@
-wip
+![haiii](https://media.tenor.com/tBw2GgWY6joAAAAM/persona-5-ren-amamiya.gif)
 <!--
 **personayaoi/personayaoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
