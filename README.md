@@ -3,4 +3,4 @@
 ![logo](https://64.media.tumblr.com/ddb523879838e400a9334dca45654571/80a1ab0517b2feea-0f/s100x200/757d27d38d892ac519495b939f38e99bda1ed373.pnj)
 ![logo](https://pixelsafari.neocities.org/stamps/eva.gif)
 ![logo](https://pixelsafari.neocities.org/stamps/bunny5.png)
-![logo](https://web.archive.org/web/20260830080107im_/https://pix.crd.co/assets/images/gallery13/7964c24f_original.jpg?v=15eb4270)
+![logo](https://64.media.tumblr.com/a792a8eb14864509cf8d895901404960/a16d582b8c080528-e4/s250x400/a91cd0310360f3a335f193f9222c27be4b8fe742.gifv)
