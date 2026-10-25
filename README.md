@@ -1,6 +1,6 @@
 ![logo](https://file.garden/aTiWCoGB_i5vfo0E/Stamp/Videogames%20Danganronpa%20V3%20K1-B0%20Self-destruction.gifv)
 ![logo](https://file.garden/aTiWCoGB_i5vfo0E/Stamp/TV%20Soul%20Eater%20logo.gif)
-![logo](https://64.media.tumblr.com/2358ff36dc9a850363a573cd6518b31f/dfbe29397bc741c3-66/s100x200/1498aa4d70542e16a1f2ab71628a8a701414e030.pnj)
+![logo](https://64.media.tumblr.com/76b0cd59315053a0c6c624b1378c54d7/3d4ac3cd17886618-1a/s100x200/3cb75b3b533c8d9568925d6e233cdc6f1ee1ae1c.gifv)
 ![logo](https://64.media.tumblr.com/ddb523879838e400a9334dca45654571/80a1ab0517b2feea-0f/s100x200/757d27d38d892ac519495b939f38e99bda1ed373.pnj)
 ![logo](https://pixelsafari.neocities.org/stamps/eva.gif)
 ![logo](https://pixelsafari.neocities.org/stamps/bunny5.png)
