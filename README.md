@@ -8,6 +8,5 @@
 ![logo](https://pixelsafari.neocities.org/stamps/eva.gif)
 ![logo](https://pixelsafari.neocities.org/stamps/more/gorillaz.gif)
 ![logo](https://pixelsafari.neocities.org/stamps/bunny5.png)
-![logo](https://web.archive.org/web/20260830080107im_/https://pix.crd.co/assets/images/gallery14/c2e28d5b_original.gif?v=15eb4270)
 ![logo](https://web.archive.org/web/20260830080107im_/https://pix.crd.co/assets/images/gallery13/a607ee9c_original.png?v=15eb4270)
 ![logo](https://web.archive.org/web/20260830080107im_/https://pix.crd.co/assets/images/gallery13/7964c24f_original.jpg?v=15eb4270)
