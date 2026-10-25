@@ -1,3 +1,4 @@
+<div align="center">
 ![logo](https://64.media.tumblr.com/5c29cd2872bbb273bfe4f20b7adccc92/3d4ac3cd17886618-ae/s100x200/3d903a115b7315405892d72e1a1e04d73be166b6.gifv)
 ![logo](https://file.garden/aTiWCoGB_i5vfo0E/Stamp/Videogames%20Danganronpa%20V3%20K1-B0%20Self-destruction.gifv)
 ![logo](https://64.media.tumblr.com/e840c5fdd1d338497cf7b5426b95db6c/181c394ca22da18e-17/s100x200/fee1a826b09abdebdf12d32a5a562fcdff200e2a.gifv)
@@ -10,3 +11,4 @@
 ![logo](https://64.media.tumblr.com/bab544daef57ab939901adf390abeac6/1e055556e8ef773d-69/s100x200/f9df7075635c3304ebda3b9657948ac0234c8ffd.pnj)
 ![logo](https://64.media.tumblr.com/2e202f41decfd7c66d31dc9d8552297f/878b444d10b3c2a7-5e/s100x200/136cc41e3c12df0ae2eb2630da58238494dda4bc.pnj)
 ![logo](https://64.media.tumblr.com/c022e8519157c7c6c6eb6f169f1ddb64/44eb24bdbd894304-df/s100x200/8d19c7a4289a60e304a9284c307be005ae22ef05.pnj)
+</div>
