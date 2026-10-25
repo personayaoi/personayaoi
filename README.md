@@ -1,5 +1,4 @@
 ![logo](https://blinkie-net.neocities.org/Stamps/6/twilight.gif) 
-![logo](https://media.thuvien.org/photo/56574/image/74865bea9f8f0eb2ed808f66d6a808bc)
 ![logo](https://file.garden/aTiWCoGB_i5vfo0E/Stamp/Videogames%20Danganronpa%20V3%20K1-B0%20Self-destruction.gifv)
 ![logo](https://file.garden/aTiWCoGB_i5vfo0E/Stamp/TV%20Soul%20Eater%20logo.gif)
 ![logo](https://pixelsafari.neocities.org/stamps/htmlsucks.png)
