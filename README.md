@@ -9,8 +9,6 @@
 <img src="https://64.media.tumblr.com/01ca6330545d035c0779289db1057cd6/46c514964422fcf5-83/s100x200/375dda10785d3f61fe8b9bc00a71a32ec17a3ee0.pnj" alt="g" />
 <img src="https://64.media.tumblr.com/dd3b70657cc87ac92a143cfff1cd60c1/46c514964422fcf5-c1/s100x200/b84b0440256ea7b9ab240403f35f16e847c28db1.gifv" alt="h" />
 <img src="https://64.media.tumblr.com/db0290f83d2ca4d407a976c20e7fecaa/ae87f494a466804d-4c/s100x200/0e62afbd66a9c39137676f335df56c9a82951ae6.pnj" alt="i" />
-<img src="https://64.media.tumblr.com/bab544daef57ab939901adf390abeac6/1e055556e8ef773d-69/s100x200/f9df7075635c3304ebda3b9657948ac0234c8ffd.pnj" alt="j" />
 <img src="https://64.media.tumblr.com/2e202f41decfd7c66d31dc9d8552297f/878b444d10b3c2a7-5e/s100x200/136cc41e3c12df0ae2eb2630da58238494dda4bc.pnj" alt="k" />
-<img src="https://64.media.tumblr.com/c022e8519157c7c6c6eb6f169f1ddb64/44eb24bdbd894304-df/s100x200/8d19c7a4289a60e304a9284c307be005ae22ef05.pnj" alt="l" />
 
 </div>
