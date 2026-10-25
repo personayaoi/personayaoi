@@ -5,6 +5,5 @@
 ![logo](https://pixelsafari.neocities.org/stamps/htmlsucks.png)
 ![logo](https://pixelsafari.neocities.org/stamps/more/undertale2.png)
 ![logo](https://pixelsafari.neocities.org/stamps/eva.gif)
-![logo](https://pixelsafari.neocities.org/stamps/more/gorillaz.gif)
 ![logo](https://pixelsafari.neocities.org/stamps/bunny5.png)
 ![logo](https://web.archive.org/web/20260830080107im_/https://pix.crd.co/assets/images/gallery13/7964c24f_original.jpg?v=15eb4270)
