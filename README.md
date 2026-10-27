@@ -10,3 +10,8 @@
 <img src="https://64.media.tumblr.com/db0290f83d2ca4d407a976c20e7fecaa/ae87f494a466804d-4c/s100x200/0e62afbd66a9c39137676f335df56c9a82951ae6.pnj" alt="i" />
 
 </div>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=g3q8txh58w4o2o54zyglzak1f&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
