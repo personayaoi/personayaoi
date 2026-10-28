@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://64.media.tumblr.com/377d644e349ab6e51ed6deac903a6d7c/dfbe29397bc741c3-ff/s100x200/4e58a16ba1730657ee8a48deecbc9db4bfe76f5b.pnj"/><br>
+<img src="https://64.media.tumblr.com/84039a2f66c290c676f36d8b52b10765/5d30b617e81e47f0-c9/s75x75_c1/adb60f49847783c1f58331cf76dddc7dd5150bf7.gifv"/><br>
 
 
 <p>wip</p>
